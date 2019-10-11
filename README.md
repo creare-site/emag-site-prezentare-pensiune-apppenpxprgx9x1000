@@ -1,4 +1,4 @@
-﻿# [Site Prezentare Pensiune](https://www.emag.ro/site-prezentare-pensiune-bonus-1an-hosting-apppenpxprgx9x1000/pd/D6JSS4BBM/)
+# [Site Pensiune, Hosting Inclus - Vandut pe eMAG.ro](https://www.emag.ro/site-prezentare-pensiune-bonus-1an-hosting-apppenpxprgx9x1000/pd/D6JSS4BBM/)
 
 Site prezentare pensiune, un produs [WebsiteMarket](https://websitemarket.ro), vandut pe [eMag](https://www.emag.ro)
 
